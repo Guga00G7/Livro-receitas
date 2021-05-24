@@ -8,3 +8,4 @@ Espero que goste!!
 
 - Strogonoff de frango
 - Pavê
+- Feijoada
